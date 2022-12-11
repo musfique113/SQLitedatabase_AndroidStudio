@@ -1,3 +1,3 @@
 # SQLitedatabese_madLR3
 
-![giphy](https://user-images.githubusercontent.com/53111065/206918081-a5eaf506-6240-4301-9d5e-eb6bc3f6d9a5.gif)
+![Media_221212_003343](https://user-images.githubusercontent.com/53111065/206922174-93a5c5bb-7eaa-4aa2-b345-1726d7afe41f.gif)
